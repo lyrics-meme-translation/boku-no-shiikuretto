@@ -2,7 +2,7 @@
 ### 歌詞翻譯<br>
 [桜の接ぎ木のもとへ（回到接木之櫻）](https://lyrics-meme-translation.github.io/sakura-no-tsugiki/)
 
-<img src="https://raw.githubusercontent.com/lyrics-meme-translation/Hajimarinomae-Oshimainoato/main/7C4BC4BCC8A74B479B62CD2021DD3D54_LL.jpg" width="600" height="400"> <br>
+<img src="https://pbs.twimg.com/media/EicCw8IUMAAz_mM.jpg" width="600" height="400"> <br>
 
 ぼくのしーくれっと<br>
 是一首描述作為生理男性卻有少女般的一顆心<br>
