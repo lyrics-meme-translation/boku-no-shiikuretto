@@ -5,7 +5,7 @@
 <img src="https://pbs.twimg.com/media/EicCw8IUMAAz_mM.jpg" width="600" height="400"> <br>
 
 ぼくのしーくれっと<br>
-是一首描述作為生理男性卻有少女般的一顆心<br>
+這首歌描述作為生理男性卻有少女般的一顆心<br>
 因此穿上了女孩子的衣服<br>
 感到既開心卻又害羞<br>
 希望將自己的這個祕密告訴你<br>
